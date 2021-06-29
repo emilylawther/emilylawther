@@ -1,0 +1,5 @@
+- Hi, I’m @emilylawther
+- I do art, design, and writing on the LSI Games Team.
+- 📫 How to reach me: emily@limbitless-solutions.org
+- 👀 2D Portfolio: https://www.artstation.com/emilyrae
+- 👀 3D Portfolio: https://sketchfab.com/emilyrae
